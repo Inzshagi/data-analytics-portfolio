@@ -33,6 +33,6 @@ Transitioning into data analytics — building skills in SQL, Excel, and Power B
 
 ## Contact
 
-- Upwork: https://www.upwork.com/freelancers/~016710ace1965588d2
+- 💼 Upwork: [Zyron A.](https://www.upwork.com/freelancers/~016710ace1965588d2)
 - Location: Philippines | Open to remote opportunities
   
